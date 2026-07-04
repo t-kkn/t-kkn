@@ -8,4 +8,4 @@ My nickname is Ju.
 - 🚀 Building cool projects
 
 ## Contact
-- Email: myemail@example.com
+- Email: tanabat.kukiatnun@gmail.com
